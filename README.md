@@ -1,1 +1,1 @@
-# ALGORITM_1_Govorov
+G0v0r0v_Algoritm_1
